@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Daljeet
 - 👀 I’m interested in coding
--  I’m currently in 12th
+-  I’m pursuing BCA with specialization of Cybersecurity
 - 😕 I’m confused about my carrier
 - ✨my Instagram ID - daljeet_turkheri
 
